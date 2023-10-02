@@ -33,7 +33,7 @@
 
 
 - **Sr. Software Engineer**\
-📆 Oct 2020 - Apr 2022\
+📆 Jan 2017 - Apr 2023\
 📍 **Annanovas IT Ltd** - Mohammodpur, Dhaka, Bangladesh
 
 
